@@ -1,5 +1,5 @@
 # KINGDOM77
-KINGDOM77: Platform gaming online dengan berbagai pilihan permainan yang menghibur dan mutu terdepan. Pilihan favorit para pemain.
+<a href="https://sparksync.shop/">KINGDOM77</a>: Platform gaming online dengan berbagai pilihan permainan yang menghibur dan mutu terdepan. Pilihan favorit para pemain.
 
 KINGDOM77: Platform Game Online Unggulan dengan Pengalaman Bermain Terbaik
 KINGDOM77 telah menjelma menjadi satu-satunya destinasi utama bagi para penggemar game online yang mencari pengalaman bermain yang tak tertandingi. Dengan beragam pilihan permainan yang disajikan secara berkualitas tinggi, platform ini telah berhasil membangun reputasi yang kuat di kalangan komunitas gamer. Berikut ini adalah alasan mengapa KINGDOM77 layak mendapat perhatian Anda:
